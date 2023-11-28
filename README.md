@@ -102,3 +102,13 @@ ID: 11015103
 ![Screenshot (9)](https://github.com/11015103/DCIT_205_IA/assets/151826481/e38a1955-8f08-4f58-b486-a878a772beba)
 
 
+
+
+
+
+
+
+
+
+
+I do learn a lot from this project, now i can see my learning about how to clone website is increase and ive learn that everything can be posible if ony you try. I'm saying that because when I started it was very difficult for me and i said to my self that i can do and now I'm done. Thank you for teaching us and giving us this project.
